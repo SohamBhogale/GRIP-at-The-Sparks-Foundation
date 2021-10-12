@@ -1,1 +1,1 @@
-# Grip_Task
+# GRIP at The Sparks Foundation
